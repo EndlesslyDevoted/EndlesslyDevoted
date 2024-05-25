@@ -19,7 +19,7 @@
 <p align="center"> 𝑰𝑵𝑻𝑹𝑶𝑫𝑼𝑪𝑻𝑰𝑶𝑵 !
 
 
-<p align="center"> Greetings everyone! I am Faye, a twelve year old female on the website. I’m from the Philippines, and my pronouns are She | Her | Hers, though, you’re always welcome to say They | Them | Theirs.
+<p align="center"> Greetings everyone! I am Faye, a female on the website. I’m from the Philippines, and my pronouns are She | Her | Hers, though, you’re always welcome to say They | Them | Theirs.
 
 
 <p align="center"> .⁠｡⁠*⁠♡*⁠｡.
