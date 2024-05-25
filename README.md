@@ -1,2 +1,2 @@
-<img align="right" width="200" height="200" src="![Untitled8_20240525100233](https://github.com/EndlesslyDevoted/EndlesslyDevoted/assets/170754264/f03417f1-f470-4a17-aa6b-7ccf387805b5)]
+<img align="right" width="100" height="100" src="![49e1a40e69437ca0b941ae9d5cf70a1d](https://github.com/EndlesslyDevoted/EndlesslyDevoted/assets/170754264/55516bca-9819-46f8-bb40-28d56f4f35a6)
 ">
